@@ -1,0 +1,1 @@
+ARTICULO 117º: Cualquier trámite no previsto expresamente en esta ORDENANZA FISCAL e IMPOSITIVA o en Ordenanzas Especiales, hasta tanto no se excluya en las mismas, abonará el derecho en base a lo que corresponda de acuerdo a la categoría análoga.

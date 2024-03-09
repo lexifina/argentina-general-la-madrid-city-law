@@ -1,0 +1,1 @@
+ARTICULO 154º: En la comercialización del ganado por medio de remate feria, deberá exigirse previamente la expedición de las guías de traslado o el certificado de venta, el archivo de los certificados de propiedad y cuando han sido reducidos a una marca, se adjuntará el duplicado de los permisos de marcación, acreditantes de la operación.

@@ -1,0 +1,1 @@
+ARTICULO 126º: Toda solicitud de aprobación de una obra en construcción deberá ser presentada por el propietario, conjuntamente con un profesional técnico en el ramo de la construcción, quién será solidariamente responsable con aquel en cuanto al cumplimiento de las cláusulas impositivas que determine la Ordenanza Impositiva.

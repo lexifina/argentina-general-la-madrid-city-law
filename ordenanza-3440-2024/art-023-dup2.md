@@ -1,0 +1,1 @@
+ARTICULO 23º: De acuerdo a lo determinado en la Ordenanza Fiscal Anual, a los pacientes con obra social que en los Hospitales Municipales “Dr. Mariano Etchegaray” y Dr. Eliseo Mañay tenga convenio firmado, se les facturará de acuerdo a lo estipulado en el mismo convenio.

@@ -1,0 +1,1 @@
+ARTICULO 169º: Serán contribuyentes responsables para el pago de tales derechos, los herederos o representantes legales de la sucesión del causante, extendiéndose la responsabilidad en forma solidaria con las personas nombradas a quienes por sí o invocando alguna representación, soliciten los permisos pertinentes.

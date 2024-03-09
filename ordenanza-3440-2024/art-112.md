@@ -1,0 +1,1 @@
+ARTICULO 112º: Toda actuación o trámite administrativo, estará sujeto al pago de un derecho por el servicio que preste la Municipalidad al solicitante, actuante, transmitente o gestor. Se pagará en forma de estampilla o sello por fojas, bajo recibo, según corresponda y en escalas de importes que fije la Ordenanza Impositiva Anual.

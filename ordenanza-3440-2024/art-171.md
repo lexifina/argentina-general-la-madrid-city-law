@@ -1,0 +1,1 @@
+ARTICULO 171º: Toda concesión no renovada al término de su vencimiento, tendrá una tolerancia de noventa (90) días, vencido dicho término, el Departamento Ejecutivo intimar mediante edictos en publicados en un diario de la localidad, a renovar la correspondiente concesión, bajo apercibimiento de depositar los restos en el osario municipal.

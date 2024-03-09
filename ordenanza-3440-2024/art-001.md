@@ -1,0 +1,1 @@
+ARTICULO 1º: La presente Ordenanza Fiscal establece las obligaciones fiscales hacia la Municipalidad de General La Madrid, consistentes en Tasas, Gravámenes, Derechos y otros tributos, de conformidad con la Ley Orgánica de las Municipalidades y sus modificatorias y la Constitución de la Provincia de Buenos Aires.

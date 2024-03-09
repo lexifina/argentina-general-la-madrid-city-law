@@ -1,0 +1,1 @@
+ARTICULO 94º: La determinación de la base de tributación se efectuará mediante Declaración Jurada en los formularios que a tales efectos entregará la autoridad municipal, sin cargo y libre de sellados.

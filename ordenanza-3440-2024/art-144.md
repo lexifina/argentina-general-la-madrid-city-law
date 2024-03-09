@@ -1,0 +1,2 @@
+ARTICULO 144º: Dichas patentes son de carácter anual, con excepción de las que se gestionen por primera vez con posterioridad al treinta (30) de junio, en cuyo caso corresponderá el cincuenta por ciento (50%) del gravamen. El pago de la misma se realizará en 3 cuotas, de acuerdo al cronograma de pagos establecido anualmente por el Poder Ejecutivo.
+Los contribuyentes que abonaren, al vencimiento de la 1° cuota, la totalidad de la tasa anual, obtendrán una quita del diez por ciento (10%).

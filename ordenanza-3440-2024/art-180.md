@@ -1,0 +1,1 @@
+ARTICULO 180º: Por los servicios o patentes no comprendidos en los títulos anteriores, se abonarán los derechos que para cada caso determine la Ordenanza Impositiva Anual, los que se harán efectivos por los solicitantes y/o beneficiarios en forma y tiempo que establezca.

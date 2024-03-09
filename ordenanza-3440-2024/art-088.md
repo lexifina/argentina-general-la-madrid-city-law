@@ -1,0 +1,1 @@
+ARTICULO 88º: Se tomará como base imponible, el número de personas en relación de dependencia que efectivamente trabajen en la empresa, en jurisdicción de General La Madrid. Se exceptúa los miembros de directorios, consejos de administración y personal de corredores y viajantes, que no serán tomados en cuenta para la base imponible.

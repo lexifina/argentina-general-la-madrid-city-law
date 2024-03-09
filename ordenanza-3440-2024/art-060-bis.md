@@ -1,0 +1,1 @@
+ARTICULO 60 BIS: Podrá eximirse de la Tasa prevista en el Art. 192 “Reserva de estacionamiento” a quienes cumplan con los requisitos establecidos en la Ordenanza Nº2089/20 “Reserva de estacionamiento y libre tránsito para personas con movilidad reducida”.-

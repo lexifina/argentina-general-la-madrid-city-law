@@ -1,0 +1,1 @@
+ARTICULO 25º: La facturación de servicios a pacientes que hayan sufrido accidentes de trabajo, se hará directamente al empleador, con los aranceles previstos en el Nomenclador Nacional de las compañías de seguros.

@@ -1,0 +1,1 @@
+ARTICULO 21º: La determinación de las obligaciones impositivas se efectuará como se indica en cada uno de los capítulos de la sección segunda Parte Especial de la Ordenanza Fiscal o en aquellas que se establezcan en ORDENANZAS ESPECIALES.
