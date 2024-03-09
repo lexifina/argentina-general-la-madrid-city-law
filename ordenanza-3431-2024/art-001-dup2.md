@@ -1,0 +1,1 @@
+ARTICULO 1º: Adjudicase en forma definitiva a la Sra. Torres Mariana, DNI 33.560.161 y Pérez Darío Javier, DNI 33.515.083, un lote de terreno perteneciente al Plan Familia Propietaria, identificado catastralmente como Circ I, Secc. E, Ch. 193, Manzana 193aa, Parcela 15 de General La Madrid. --------------------------
