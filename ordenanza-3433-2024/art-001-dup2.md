@@ -1,0 +1,1 @@
+ARTICULO 1º: Crease el “Programa de Alquileres Solidarios y Viviendas sociales” en el Partido de General La Madrid, destinado a la adopción de medidas que tiendan a facilitar el acceso a una vivienda digna en alquiler.
