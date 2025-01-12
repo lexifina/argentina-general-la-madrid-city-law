@@ -1,0 +1,1 @@
+ARTICULO 122º: Para la determinación del tipo de edificios y destinos se utilizarán las planillas confeccionadas por la Oficina de Obras Públicas, conforme al Código de Ordenamiento Urbano establecido en la Ordenanza N° 3319/23.

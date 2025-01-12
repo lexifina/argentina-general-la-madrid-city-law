@@ -1,0 +1,1 @@
+ARTICULO 185º: Por aquellos alumnos que concurran al Jardín Maternal “Ángel de la Guarda” se cobrará una tasa mensual, que será la que fije la Ordenanza Impositiva, la que se establecerá por jornada de 8 horas diarias, en función de los ingresos del grupo familiar, tomando como base el salario básico categoría 3 de 32,5 hs. del escalafón municipal.

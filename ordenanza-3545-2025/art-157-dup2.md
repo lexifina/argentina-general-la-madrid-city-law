@@ -1,0 +1,1 @@
+ARTICULO 157º: En todas las ventas particulares de haciendas o cueros que se realicen en el partido, el vendedor deberá legalizar previamente en la Oficina de Guías el certificado de venta, cuando salga o se introduzca deberá estar muñida de su respectiva guía de campaña, visada por la controladora de su lugar de origen.

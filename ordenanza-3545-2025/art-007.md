@@ -1,0 +1,1 @@
+ARTICULO 7º: Todas las funciones referentes a la Recaudación, Fiscalización, Determinación y Devolución de las Tasas, Derechos, Contribuciones y otros Tributos fijados por esta Ordenanza Fiscal u otras Ordenanzas especiales, y a la aplicación de penalidades por las transgresiones a las disposiciones de los precitados cuerpos legales, corresponderá al Departamento Ejecutivo.

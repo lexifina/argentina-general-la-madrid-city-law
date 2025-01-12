@@ -1,0 +1,3 @@
+ARTICULO 20º: Los agentes municipales están obligados a suministrar informes o denunciar dentro de los cinco (5) días, los hechos que lleguen a su conocimiento en el desempeño de sus funciones y que puedan constituir o modificar hechos imponibles.
+CAPITULO 7
+DE LA DETERMINACION DE LAS OBLIGACIONES FISCALES

@@ -1,0 +1,13 @@
+ARTICULO 113º: El ámbito de aplicación de este tributo, comprende los siguientes servicios administrativos y técnicos:
+1- ADMINISTRATIVOS:
+1.1. La tramitación de asuntos que se promuevan en función a intereses particulares, salvo los que tengan asignadas tarifas específicas en este u otro rubro;
+1.2. La tramitación de actuaciones que inicie de oficio la Municipalidad contra personas o entidades siempre que se originen en causas justificadas y que resulten debidamente acreditadas;
+1.3. La expedición, visado y habilitación de certificados, testimonios u otros elementos, siempre que no tengan tarifas específicas asignadas a este u otro rubro;
+1.4. La expedición de carnets o libretas y sus duplicados o renovaciones;
+1.5. Las solicitudes de permisos que no tengan tarifas específicas asignadas a este rubro u otro;
+1.6. Los registros de firma por única vez, de profesionales o auxiliares de la ingeniería o proveedores;
+1.7. La toma de razón de contratos de prenda de semovientes;
+1.8. Las transferencias de concesiones o permisos municipales salvo que tengan tarifas específicas asignadas a este rubro u otro rubro.
+2- TÉCNICOS:
+2.1. Incluye los estudios, pruebas experimentales, relevamientos u otros semejantes cuya retribución se efectúe normalmente de acuerdo a aranceles excepto los servicios asistenciales.
+2.2. Catastro y fraccionamiento de tierras, comprendido los servicios de verificaciones, informes, copias, empadronamiento o incorporaciones al catastro y aprobación y visado de planos para mensuras y subdivisiones de tierras.

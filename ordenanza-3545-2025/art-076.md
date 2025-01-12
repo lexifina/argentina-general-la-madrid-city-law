@@ -1,0 +1,1 @@
+ARTICULO 76º: A los efectos del pago de las tasas mencionadas serán contribuyentes los titulares del dominio de los inmuebles con exclusión de los nudos propietarios, usufructuarios, poseedores a títulos de dueño y los usuarios de energía eléctrica domiciliaria ubicados en zonas donde existe alumbrado público.

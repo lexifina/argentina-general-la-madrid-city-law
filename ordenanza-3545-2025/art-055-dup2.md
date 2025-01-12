@@ -1,0 +1,1 @@
+ARTICULO 55º: Podrá eximirse del pago de la Tasa por Inspección de Seguridad e Higiene a Clubes y entidades intermedias, debidamente constituidas y que tengan vigente su inscripción como “Entidad de Bien Público Municipal”.

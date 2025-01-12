@@ -1,0 +1,1 @@
+ARTICULO 177º: Cualquier excepción a lo determinado en el presente título, deberá estar justificada debidamente, en base al informe del Servicio Social del Hospital Municipal o del Servicio Social, de la Municipalidad y no constituir impedimento alguno para la inmediata atención del paciente.

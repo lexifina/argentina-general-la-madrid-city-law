@@ -1,0 +1,1 @@
+ARTÍCULO 132º: Para el uso de la vía pública se requerirá la autorización expresa del Departamento Ejecutivo: la que se otorgará únicamente a petición de parte y de conformidad a las normas legales que reglamenten el uso.

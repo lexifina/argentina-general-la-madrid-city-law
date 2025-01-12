@@ -1,0 +1,1 @@
+ARTICULO 110º: Queda prohibida la comercialización en la vía pública de cualquier tipo de mercadería en la ciudad cabecera y localidades del Partido a través de propaganda en la vía pública por medio de cualquier aviso sonoro o a viva voz, o sin ella mediante visitas a domicilio, con las excepciones previstas en la Ordenanza Municipal Nº1977/18.-

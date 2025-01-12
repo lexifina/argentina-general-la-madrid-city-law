@@ -1,0 +1,3 @@
+ARTICULO 66º: El Departamento Ejecutivo establecerá el procedimiento y formalidades a que deberán adecuarse los beneficiarios de las exenciones.
+Las exenciones sobre tasas de emisión periódica, tendrán carácter permanente mientras el o los beneficiarios mantengan el mismo carácter por el cual fue otorgado. Para dar cumplimiento a este requisito, se deberá realizar un padrón por cada artículo, y todos los años el D.E. deberá verificar el cumplimiento de dichas condiciones.
+Las demás eximiciones, sobre tasas de Servicios Especiales, se deberán conceder por Expediente individual, donde consten las condiciones y plazos de los mismos.

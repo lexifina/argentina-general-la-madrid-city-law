@@ -1,0 +1,1 @@
+ARTICULO 53: Los titulares de comercios, industrias y/o transportes que inicien o renueven, los trámites de Habilitación Municipal, estarán exentos de cualquier tasa o derecho relacionado con el otorgamiento de la misma.

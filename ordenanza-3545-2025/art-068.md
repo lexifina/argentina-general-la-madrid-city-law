@@ -1,0 +1,1 @@
+ARTICULO 68º: Exímase del pago de la tasa dispuesta en la “Sección segunda – Parte especial – Capitulo 21º de la Ordenanza Fiscal” a las estructuras portantes utilizadas por radios locales y proveedores de Internet locales.

@@ -1,0 +1,1 @@
+ARTICULO 82º: La inspección sanitaria es obligatoria y gratuita en los casos de enfermedades infecto contagiosas, y se hará conforme a las disposiciones y reglamentos que existan para la desinfección obligatoria de la Provincia, bajo la dirección del Hospital Local o el Profesional que autorice.

@@ -1,0 +1,1 @@
+ARTICULO 138º: Toda institución que realice cualquier tipo de festejos, está obligada a solicitar el permiso correspondiente, con el mínimo de ocho (8) días de antelación. No cumplido este requisito, no se le permitirá realizar el mismo.

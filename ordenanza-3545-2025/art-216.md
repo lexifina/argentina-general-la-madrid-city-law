@@ -1,0 +1,1 @@
+ARTICULO 216º: Por la ejecución de Obras Públicas de Infraestructura que produzcan un beneficio directo a los vecinos frentistas o indirectos a toda la población del Partido de General La Madrid, o a determinado sector territorial o poblacional, se abonará una Contribución por Mejoras de la manera prevista para cada obra en particular.

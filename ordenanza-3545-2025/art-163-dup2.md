@@ -1,0 +1,1 @@
+ARTICULO 163º: Por la prestación de los servicios de conservación, reparación y mejorado de calles y caminos rurales de la red vial municipal, se abonará la tasa anual que fije la Ordenanza Impositiva.

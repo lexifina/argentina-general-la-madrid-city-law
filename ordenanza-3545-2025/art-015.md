@@ -1,0 +1,4 @@
+ARTÍCULO 15°: Cuando en la Municipalidad no existan constancias del domicilio fiscal ni sea posible fijar domicilio conforme las circunstancias previstas en el artículo precedente, se determinará de pleno derecho y de manera automática la constitución de domicilio especial en la sede de la Municipalidad de General La Madrid. -
+CAPITULO 6
+DE LAS OBLIGACIONES DE LOS CONTRIBUYENTES,
+RESPONSABLES Y TERCEROS

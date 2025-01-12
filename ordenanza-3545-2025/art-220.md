@@ -1,0 +1,1 @@
+ARTICULO 220°: FORMA DE PAGO: El Departamento Ejecutivo podrá en cada caso, establecer planes de pago en cuotas, financiaciones y beneficios por pago de contado, los cuales serán informados a los frentistas, considerando asimismo las causales de eximición previstas.

@@ -1,0 +1,1 @@
+ARTICULO 140º: Previo al otorgamiento de la autorización, la inspección municipal verificará el cumplimiento de las normas de seguridad generales en vigencia para el tipo de espectáculo que se refiera, ya sea en locales cerrados o abiertos. En caso de infracción, se impondrá la clausura y se aplicará la multa prevista en la Ordenanza Impositiva y Ordenanzas Complementarias.

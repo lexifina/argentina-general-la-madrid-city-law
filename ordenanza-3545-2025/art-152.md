@@ -1,0 +1,1 @@
+ARTICULO 152º: En caso de reducción o marca (marca fresca) ya sea esta por acopiadores o criadores, cuando posean marcas de venta, se exigirá el permiso de marcación, cuyo duplicado deberá ser agregado a la guía de faena y traslado o el certificado de venta.

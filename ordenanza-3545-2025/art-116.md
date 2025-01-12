@@ -1,0 +1,1 @@
+ARTICULO 116º: La falta de reposición del sellado después de transcurridos diez (10) días de la intimación de su pago, hará posible a los interesados y/o responsables de la aplicación que correspondan.

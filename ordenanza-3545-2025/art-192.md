@@ -1,0 +1,3 @@
+ARTICULO 192º: Los propietarios, los usufructuarios y/o poseedores de inmuebles que posean garajes en el mismo destinado para entrada y salida de vehículos, podrán a su criterio abonar la Tasa que determine la Ordenanza Impositiva.
+Los contribuyentes que abonen la Tasa, tendrán derecho a que frente a su garaje no se permita el estacionamiento de vehículo alguno.
+A fin de dar cumplimiento, la Municipalidad entregará al Contribuyente, una placa de señalización con expresa mención de la prohibición y de la presente Ordenanza y Artículo.

@@ -1,0 +1,2 @@
+ARTICULO 142º: Los rodados que circulen por la vía pública, - excepto los vehículos comprendidos en el impuesto provincial a los automotores- abonarán en concepto de patente, un importe fijo, imponible sobre la unidad - vehículo que se establecerá al efecto en la Ordenanza Impositiva Anual.
+No estarán sujetos al pago de la presente tasa todos aquellos rodados cuyos modelos de fabricación sean de una antigüedad mayor a veinticuatro (24) años.

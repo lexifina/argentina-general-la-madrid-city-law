@@ -1,0 +1,1 @@
+ARTICULO 217º: El Honorable Concejo Deliberante, en uso de las facultades que le son propias, en cada caso y mediante el dictado de la correspondiente ordenanza, y a pedido del Departamento Ejecutivo, declarará de utilidad pública municipal y de pago obligatorio, la realización de cada obra que tributará la Contribución por mejoras.

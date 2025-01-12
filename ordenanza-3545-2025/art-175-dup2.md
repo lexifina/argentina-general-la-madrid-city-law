@@ -1,0 +1,1 @@
+ARTICULO 175º: Son contribuyentes quienes reciban los servicios asistenciales solidariamente responsables del pago quienes en virtud de obligaciones legales estén obligados a prestar asistencia al paciente.

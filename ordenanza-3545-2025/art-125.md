@@ -1,0 +1,1 @@
+ARTICULO 125º: En aquellos casos injustificados en que el propietario desistiera de la ejecución de la obra, y siempre que lo solicite dentro del plazo establecido en el Articulo124º, se le reintegrará una parte proporcional de lo abonado, debiéndose para tales efectos fijar en la Ordenanza Impositiva el respectivo porcentaje.

@@ -1,0 +1,1 @@
+ARTICULO 60°: Podrá eximirse de los montos establecidos en la Ordenanza Impositiva a los usuarios del Jardín Maternal “Ángel de la Guarda” a aquellos vecinos que analizada la situación socioeconómica se determine su imposibilidad de atender al pago de los mismos.

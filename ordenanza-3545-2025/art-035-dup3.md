@@ -1,0 +1,2 @@
+ARTICULO 35º: El plazo para la producción de la prueba ofrecida por parte del recurrente será dentro de treinta (30) días a contar desde la fecha de interposición del recurso-.
+Durante el transcurso del término de producción de prueba y hasta el momento de dictar resolución, la autoridad Municipal podrá realizar todas las verificaciones, inspecciones y demás diligencias que se estimen convenientes para el esclarecimiento de los hechos.

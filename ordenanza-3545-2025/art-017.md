@@ -1,0 +1,1 @@
+ARTICULO 17º: El Departamento Ejecutivo podrá imponer con carácter general a categorías de contribuyentes responsables, lleven o no libros y contadurías rubricadas, el deber de tener uno o más libros regularmente en los que se anotarán las operaciones y los actos relevantes a los fines de las determinaciones de las obligaciones impositivas.

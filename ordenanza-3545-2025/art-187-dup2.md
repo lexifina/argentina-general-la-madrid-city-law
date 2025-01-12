@@ -1,0 +1,1 @@
+ARTICULO 187º: Por traslado de vehículos secuestrados por infracción a normas provinciales y/o municipales hasta el depósito judicial se cobrará la Tasa que fije la Ordenanza Impositiva, la cual deberá ser abonada siendo éste un requisito indispensable para el retiro del vehículo.

@@ -1,0 +1,6 @@
+ARTICULO 80º: A los efectos de la aplicación de la presente tasa, se tomará como base imponible lo siguiente:
+A) Para la extracción de residuos y desagote de pozos se abonará una tasa fija por viaje y un adicional por kilómetro recorrido, cuando se trate de viajes fuera del radio urbano;
+B) Para la limpieza de predios, por superficie, fijándose un importe por metro cuadrado, teniendo en cuenta además el costo de los materiales y personal empleado;
+C) Para la desinfección, desratización y fumigación, por unidad de vivienda o vehicular;
+Para aquellos servicios mencionados en los incisos B) y C), donde sea necesario el traslado del personal municipal fuera del radio urbano (ciudad cabecera y localidades), se cobrará un adicional por kilómetro recorrido, fijado en la Ordenanza Impositiva Anual.
+Serán responsables del pago de estas tasas los solicitantes en los servicios especificados en A) y C) y los propietarios y/o titulares del bien en los detallados en B).

@@ -1,0 +1,1 @@
+ARTICULO 195º: Por los gastos de funcionamiento correspondientes a los servicios de Seguridad Policial Bonaerense, Bomberos Voluntarios y Defensa Civil se abonará una Tasa que consistirá en aplicar a cada parcela el importe fijo y por zona que a ese efecto determine la Ordenanza Impositiva.-.

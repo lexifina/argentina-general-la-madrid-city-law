@@ -1,0 +1,2 @@
+ARTÍCULO 184º: Por el ingreso, uso y goce de las instalaciones del Balneario Municipal, se cobrará de acuerdo a lo establecido en la Ordenanza Impositiva vigente, exceptuando dicho cobro los días que las condiciones climáticas no sean las adecuadas para disfrutar de la totalidad de las instalaciones, la cual será determinada por la autoridad municipal competente.
+El cobro de ingreso se efectuará durante la temporada de verano.

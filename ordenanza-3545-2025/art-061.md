@@ -1,0 +1,2 @@
+ARTICULO 61º: Todo contribuyente que lo solicite y acredite el desarrollo de una actividad con un fin social, podrá eximirse del pago de las Tasas por Conservación, Reparación y Mejorado de la Red Vial y Contribución a la Seguridad Ciudadana, a las partidas cuyo/s titular/es no supere propiedades rurales en el Partido de General La Madrid, superiores a 5 Has.
+A los efectos de la eximición prevista en el presente artículo no se considerará la cantidad de propietarios del inmueble, si no la superficie que posean en condominio.

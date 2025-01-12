@@ -1,0 +1,1 @@
+ARTICULO 89º: La tasa estará determinada por un monto mensual, que se establecerá, en función del sueldo mínimo del personal que revista dentro del agrupamiento obrero de la administración pública municipal, cuando exista modificación de dicho sueldo la variación de la tasa comenzará a regir del primer día del mes a partir del cual se disponga la medida.

@@ -1,0 +1,4 @@
+ARTICULO 40º.- Cúmplase, regístrese, archívese.
+Raúl C. Muñoz Marcela Figueroa
+Secretario Presidente
+H.C.D. H.C.D.
